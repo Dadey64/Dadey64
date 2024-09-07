@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on small projects to gain knowledge so as to better my understanding of my work.
 - 📫 How to reach me Whatsapp @+2349124496482
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I am a very good chess player
 
 <!---
 Dadey64/Dadey64 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
